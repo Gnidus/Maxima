@@ -1,0 +1,1 @@
+Strona internetowa sklepu z odzieżą damską.
